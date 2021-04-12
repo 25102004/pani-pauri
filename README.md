@@ -1,1 +1,2 @@
-# pani-pauri
+Panipuri consists of a round or ball-shaped, hollow puri (a deep-fried crisp flatbread), filled with a mixture of flavored water (known as imli pani), tamarind chutney, chili powder, chaat masala, potato mash, onion or chickpeas.
+Fuchka (or fuska or puska) differs from Panipuri in content and taste. It uses spiced mashed potatoes as the filling. It is tangy rather than sweetish while the water is sour and spicy.
